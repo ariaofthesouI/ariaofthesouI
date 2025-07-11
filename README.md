@@ -1,2 +1,2 @@
 
-![](https://komarev.com/ghpvc/?username=primalmercy&color=C0D1D4&style=plastic&label=-)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=primalmercy&color=FF5D37&style=plastic&label=thieves)
