@@ -10,3 +10,8 @@
 ㅤ
 ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ ㅤ ㅤ feel free 2 c+h
+
+
+
+
+WIP README, WILL ADD MORE SOON
