@@ -1,6 +1,6 @@
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=primalmercy&color=FF5D37&style=plastic&label=thieves)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=primalmercy&color=B8C0CA&style=plastic&label=GLLITS)
 ---
 „  'ㅤㅤㅤㅤㅤㅤㅤ━━━━━━ㅤ‿̥̣‿̣̥̣̇‿̥̣ㅤ━━━━━━ㅤㅤ˙ㅤㅤ━━━━━━ㅤ‿̥̣‿̣̥̣̇‿̥̣ㅤ━━━━━━
 
