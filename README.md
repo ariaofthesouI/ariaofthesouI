@@ -11,7 +11,7 @@
 ㅤ<img width="367" height="245" alt="Untitled1076_20250724230041" src="https://github.com/user-attachments/assets/6b7af18c-eeec-42b0-b738-9a2985b5d2fe" />
 
 ㅤㅤ
-![Typing SVG](https://readme-typing-svg.demolab.com?plastic=&size=24&pause=4000&color=7a90d8&center=true&width=1200&lines="+Do+you+wanna+dance?+대답은+하나뿐";"너로+가득+찬+맘+super+jellyous!";"Oh,+oh,+my+God,+또+나를+보고+있잖아?";"우리만의+night,+night,+night+picnic~")
+![Typing SVG](https://readme-typing-svg.demolab.com?plastic=&size=24&pause=4000&color=87C3EB&center=true&width=1200&lines="+Do+you+wanna+dance?+대답은+하나뿐";"너로+가득+찬+맘+super+jellyous!";"Oh,+oh,+my+God,+또+나를+보고+있잖아?";"우리만의+night,+night,+night+picnic~")
 
 
 ---
