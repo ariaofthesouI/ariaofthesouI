@@ -11,7 +11,7 @@
 
 
 ㅤㅤㅤ
-ㅤhow do i put a gif without it turning into an image when i download help
+ㅤ<img src="https://github.com/user-attachments/assets/5f5106e9-921a-496b-85a8-547031b0ecfa" width="450">
 
 ㅤㅤ
 ![Typing SVG](https://readme-typing-svg.demolab.com?plastic=&size=24&pause=4000&color=87C3EB&center=true&width=1200&lines=It's+full+moon+again.;Crazy+how+time+flies;One+might+wonder-;If+the+path+is+in+the+right+direction)
