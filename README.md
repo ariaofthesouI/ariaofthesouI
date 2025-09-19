@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=primalmercy&color=B5D2EA&style=plastic&label=♡﹒GLLITS)
+![](https://komarev.com/ghpvc/?username=primalmercy&color=B5D2EA&style=plastic&label=♡﹒plena-luna)
 ---
 ━━━━━━ㅤ‿̥̣‿̣̥̣̇‿̥̣ㅤ━━━━━━ㅤㅤ˙ㅤㅤ━━━━━━ㅤ‿̥̣‿̣̥̣̇‿̥̣ㅤ━━━━━━
 ㅤㅤㅤ
